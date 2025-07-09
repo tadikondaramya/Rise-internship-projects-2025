@@ -1,1 +1,0 @@
-# Rise-internship-projects-2025
